@@ -1,4 +1,4 @@
-# User manual
+# User manual Free Fire panel headshot 100% Autoaim+location 
 
 [[toc]]
 
